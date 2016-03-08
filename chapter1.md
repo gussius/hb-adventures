@@ -1,5 +1,4 @@
-#The Continued Adventures of Horgonomous Borgooeybackey
-##Chapter 1, The Re-beginning
+#The Re-beginning
 
 It had been a while since Horgonomous had been adventuring. Actually it had been some time since he had done anything at all. It appeared those 10 years has passed without notice. His memory was blank as if someone or something had simply willed him back into existence.
 
