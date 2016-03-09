@@ -30,3 +30,24 @@ Pleased with his recent bounty Horgo continued to clean whist chanting the manta
 
 ----------
 
+Horgonomous breathed out with a satified huff and looked over his hard work. The large plastic bag had somehow managed to contain the entire mess which had previously been distributed around his flat. He had found an interesting mix of objects hiding in the mess. The vacuum cleaner had been one of these items. It was just an ordinary cheap vacuum cleaner, but what had been done to it was a little disturbing. It must have been dismanteled during the partying. He found it under a half of a  ironing board that had been broken clean in half. The motor had been brutally ripped from it, the aftermath looking like open heart surgury on an unfortunate robot. There had seemed to be a superfluous number of vacuum cleaner parts strewn around the and Horgo had wondered how they could all possibly fit back in. Regardless they all went into the cavernous black rubbish bag.
+
+The rest of the room was tidy now, but not clean, and hourgonomous lamented the brutal murder of his vacuum cleaner. The rubbish bag bulged in the corner, dominating the room with its bulk and almost touching the ceiling. Although it was static, Horgo mused that it was creaking and swaying like the winner of a hotdog eating contest.
+
+Now that the room was clear of the debris, the white light blasting in from the open front door and from the open fridge appeared more disturbing than before, maybe the theraputic clean had cleared some of the brain fuzz he woke up with.  
+"Hmmmm" Horgo walked back over to the open door, squinting again from the overpowering light. There was no horrizon, no up, no down. "This space needs filling up" he said to the void. There was no echo. It was kind of like talking in fog or a snowfall, where the sound is always muted. "It needs to go somewhere I guess", Horgo turned and paced unhindered to the corner and grabbed the taught belly of the rubbish bag and pulled. It was heavy, but now that the floor was completely clear it would slide accross ok with some effort. Even the coffee table had been smashed into a few pieces, and had even been slightly charred on the edges.
+
+Horgonomous tugged on the bag. It moved an inch. He tugged again, with a grunt. It moved another inch. Grunt - grunt - grunt - grunt - grunt. This contunied for a few minutes, half way through Horgo slowed down as he came close to laughter, when he pictued what his squat dance with the rubbish bag must look like. He named this dance the 'Angry Ape', then fell into character for the remainder of the haul.
+
+Finally he came to the open door and decided that he should change to pushing, to avoid joining the bag in oblivion.
+
+
+
+
+
+
+
+
+
+
+
