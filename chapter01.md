@@ -35,19 +35,17 @@ Horgonomous breathed out with a satified huff and looked over his hard work. The
 The rest of the room was tidy now, but not clean, and hourgonomous lamented the brutal murder of his vacuum cleaner. The rubbish bag bulged in the corner, dominating the room with its bulk and almost touching the ceiling. Although it was static, Horgo mused that it was creaking and swaying like the winner of a hotdog eating contest.
 
 Now that the room was clear of the debris, the white light blasting in from the open front door and from the open fridge appeared more disturbing than before, maybe the theraputic clean had cleared some of the brain fuzz he woke up with.  
-"Hmmmm" Horgo walked back over to the open door, squinting again from the overpowering light. There was no horrizon, no up, no down. "This space needs filling up" he said to the void. There was no echo. It was kind of like talking in fog or a snowfall, where the sound is always muted. "It needs to go somewhere I guess", Horgo turned and paced unhindered to the corner and grabbed the taught belly of the rubbish bag and pulled. It was heavy, but now that the floor was completely clear it would slide accross ok with some effort. Even the coffee table had been smashed into a few pieces, and had even been slightly charred on the edges.
+"Hmmmm" Horgo walked back over to the open door, squinting again from the overpowering light. There was no horrizon, no up, no down. "This space needs filling up" he said to the void. There was no echo. It was kind of like talking in fog or a snowfall, where the sound is always muted. "It needs to go somewhere I guess", Horgo turned and paced unhindered to the corner and grabbed the taught belly of the rubbish bag and pulled. It was heavy, but now that the floor was completely clear it would slide accross ok with some effort.
 
 Horgonomous tugged on the bag. It moved an inch. He tugged again, with a grunt. It moved another inch. Grunt - grunt - grunt - grunt - grunt. This contunied for a few minutes, half way through Horgo slowed down as he came close to laughter, when he pictued what his squat dance with the rubbish bag must look like. He named this dance the 'Angry Ape', then fell into character for the remainder of the haul.
 
-Finally he came to the open door and decided that he should change to pushing, to avoid joining the bag in oblivion.
+Finally he came to the open door and decided that he should swap sides and push rather than pull, to avoid joining the bag in the oblivion.
 
+With the huge bag pressed up against the doorway. Horgonomous gave a mighty push. The bag bulged at the sides but only a small bumped was sticking through, seeing as the bag was three times the width of the door, it was not suprising. Horgo's resolve to expell the bag now evaporated and with a huff he turned and surveyed the dimly lit room. Now that the abyss was blocked from view he felt better. He thought to himself that the bag of rubbish can stay there for now.
 
+There was the matter of the fridge. It had also proven to be full of nothing. He strolled over to the fridge with hands in pockets to survey the shaft of white light shining out of the fridge onto the wall accross the room. Horgo approached and gently extended his arm through the fridge opening. The nature of the air seem no different to the air in the flat. He ran his hand around the sides of the opening. The nothingness seemed to start just inside the open fridge. His hand reached around further along where the internal wall should have been and felt the wall loop back around towards him. To his amazement what he felt and what he saw were two different things. His hand reached right around the left side and felt the opening of the fridge again, but he did not see his hand come out of the side of the fridge and around to the front.
 
+Horgonomous had to see this. He lay down on the floor on his side, held onto one side of the fridge then wiggled himself forward into the opening and attempted to curl himself around the entry to see where the rest of the fridge wall dissapeared to. The standalone fridge was raised off the floor with castors and the edge of the fridge dug into his ribs as he lay half in the fridge into the empty space. He managed to crane his head and neck back around the corner to see nothing but an entrance to the fridge again. But to Horgo's delight the fridge was finite. And half full of beers.
 
-
-
-
-
-
-
-
+"Yesss!" Horgo release one of his hands and pumped his fist in the air. THe over enthusiastic pump slid his body out into the void a great deal more, Horgo cursed and split his legs to prevent himself falling further. "While I'm hanging here in the void I might as well get myself a drink" he thought to himself. Both hand were free now and his legs were wrapped backwards into the entrance of the fridge, while the rest of him hung upside down, his face going red. He grasped the new lower cill of fridge number two and pulled himself up and grabbed a cold one which happened to be attached to 3 other beers by the looped plastic around the can necks.
+Horgo swung himself backwards and catapulted the beer into the flat and grabbed onto the entrance to frindge number one.
