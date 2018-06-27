@@ -1,8 +1,4 @@
-# ReadMe
+# Introduction
 
-This is a comedy about a strange chap who find himself in a bit of a spot, way of the reservation so to speak. Anyway might be worth a read between beers, once it get a bit larger than a few pages.
-
-
-
-
+ The Adventures of Hourgonomous Borgoeybacky is a fictional narative about a odd chap nick-named Horgo. Not much else to tell really. Read on and find out.
 

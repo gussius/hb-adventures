@@ -1,4 +1,5 @@
-# Summary
+# Table of contents
 
-* [The Re-beginning](chapter01.md)
+* [Introduction](README.md)
+* [The Re-beginning](the-re-beginning.md)
 
